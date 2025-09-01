@@ -4,3 +4,6 @@ Nie wiem czy zdajesz sobie sprawę, że to już 10 lat minęło, od kiedy się p
 
 Dziękuję za to. Szczerze.
 
+### [Dalej!](step_fifth.md)
+
+
