@@ -1,11 +1,10 @@
-Żartowałem xD Nie mogłem sobie odmówić :P 
-
-Jako, że przygotowałem dla Ciebie prezent, a nie udało się nam spotkać, to muszę Ci go jakoś przekazać. 
+Żartowałem xD
+Przygotowałem dla Ciebie prezent, ale nie udało się nam spotkać. 
 
 Nie byłbym sobą, gdybym nie pokombinował z przekazaniem prezentu. Bo co to za zabawa, jakbym Ci tylko linka wysłał ;P
 
-Więc tak oto przedstawiam przeklikiwane życzenia urodzinowe! Już się przeklikałeś przez połowę, więc już prawie koniec xD
+Więc tak oto przedstawiam przeklikiwane życzenia urodzinowe!
 
 
+### [Kurwła ile jeszcze?](step_third.md)
 
-### [Dalej!](step_third.md)
