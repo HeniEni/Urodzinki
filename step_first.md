@@ -1,3 +1,4 @@
 ## Gotowy na kolejną edycję podchodów?!
 
-### [Zawsze!](step_second.md)
+
+### [Spierdalaj](step_second.md)
